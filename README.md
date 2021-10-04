@@ -1,0 +1,2 @@
+# azi
+Hello, I am Azi Having 10 years of experience in GIS. I am good at making maps, Georeferencing /Digitizing in ArcGIS, and Google Earth Pro. I look forward to three things in my work: clarity and Simplicity, and Honesty. A fabulous masterpiece is born of those two things. I am a Serious person and a hard worker. I work for the Clients' most entire satisfaction. The idea is to give my 100%. I m flexible with my working hours and am happy to work closely with any existing freelancers you work with.
